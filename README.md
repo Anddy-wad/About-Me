@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Anddy-wad
-- 🎓 Phd Student in Demography & Sociology
+- 🐣 Phd Student in RUC
+- 🎓 Major in Demography & Sociology
 - 🌱 Struggling in learning programmming...
 - 📫 Email: 13912805065@163.com
 
